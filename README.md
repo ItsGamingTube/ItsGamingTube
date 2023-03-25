@@ -7,6 +7,9 @@ If you like what I'm doing or simply just want to donate, you can donate using c
 Bitcoin (BTC): 187BrgRgoz68oeG5kAVpb5pQQX9PsBVae5
 Bitcoin Cash (BCH): qqpg6p9kflzxkznxal25yteh3hpxau4awuktklrg6d
 Ethereum (ETH): 0xA4fb313F1c2D61432a142c6d8A94402148832771
+a /n a
+a n 
+a
 
 
 ## My Stats
